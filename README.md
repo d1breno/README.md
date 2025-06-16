@@ -56,7 +56,7 @@ Apesar de algumas limitações físicas causadas pela Anemia Falciforme, sigo es
 - 🔗 LinkedIn: [Breno Ferreira da Silva](https://linkedin.com/in/breno-ferreira-da-silva)
 - 🎨 Behance: [tracesofbreno](https://behance.net/tracesofbreno)
 - 📷 Instagram: [@d1brenox](https://instagram.com/d1brenox)
-- 💡 Portfólio: (https://bit.ly/PortfólioBrenoSilva)
+- 💡 Portfólio: [Portfólio Breno Fereira da Silva](https://bit.ly/PortfólioBrenoSilva)
 
 ---
 
